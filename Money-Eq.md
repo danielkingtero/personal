@@ -6,9 +6,9 @@
 - Source: mindvalley.com
 - Teacher: Ken Honda
 
-# Lesson 1 - Understanding Money Types
-# Lesson 2 - Understanding Money Types
-# Lesson 3 - Understanding Money Types
+# Lesson 1 - A New Way of Relating to Money
+# Lesson 2 - Your Current Relationship with Money
+# Lesson 3 - What Do You Really Want?
 # Lesson 4 - Understanding Money Types
 
 1. Fear Type :fearful:
