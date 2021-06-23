@@ -1,2 +1,3 @@
-# personal
+# Personal
+
 Personal Power
