@@ -1,3 +1,5 @@
+# Money EQ
+
 Title: Money EQ
 Source: mindvalley.com
 Teacher: Ken Honda
