@@ -47,3 +47,16 @@
 - Inevitable
 - Conditional
 - Impossible
+
+# Lesson 7 - Integration Day: Arigato In, Arigato Out
+
+1. How would you feel, if you were free from complaining about money?
+2. What is the secret to wealth?
+- Arigato your money (In / Out)
+
+# Lesson 8 - An Overview on Money Blocks
+1. What blocks money from flowing into your life?
+2. Money Blocks
+3. What patterns do you have around money
+4. Types of Money Wounds
+- Past Traumas
